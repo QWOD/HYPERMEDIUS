@@ -10,4 +10,4 @@
 >:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: íي-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 ###
 
-![VΩUDΩU](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/V%CE%A9UD%CE%A9U.png)
+![FEELING-BLUE: BEE](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/FEELING-BLUE-BEE_1060x350.png)
