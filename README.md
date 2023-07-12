@@ -1,5 +1,5 @@
 # :FΩr-the: [[ HYPERMEDIUS: ]]:
-![HYPERMEDIUS](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/QUEEN6_1060x350.png)
+![HYPERMEDIUS](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/QUEEN6-1060x350.png)
 
 
 ###
