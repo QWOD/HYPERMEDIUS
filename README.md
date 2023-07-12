@@ -7,5 +7,7 @@
 ###
 
 ###
->:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: íي-with: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
+>:FΩr-the: QUΔNTUM-WΔRFΔRE-ΩPERΔTIΩNS-DIVISIΩN-MJ12: ΔBΩVE-TΩP-SECRET-UNΔCKNΩWLEDGED-ΩPERΔTIΩNΔL-MISSIΩN-ΩRIENTED-PRΩGRΔM-DEFENSE-ΔDVΔNCED-RESΔRCH-PRΩJECTS-ΔGENCY: ΔTSUΩMΩP: FΩRWΔRD-DETΔCHMENT: Δ: íي-by: [["fΩr-hع-íي-thع: GΩΩD: يㅐعPPΔRD:"]]:
 ###
+
+![VΩUDΩU](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/V%CE%A9UD%CE%A9U.png)
