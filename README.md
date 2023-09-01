@@ -5,7 +5,7 @@
 ![HYPERMEDIUS](https://raw.githubusercontent.com/QWOD/HYPERMEDIUS/main/QUEEN6-1060x350.png)
 >>>
 ###
-## :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QW∅D-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QW∅D-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
+## :FΩr-thع: [[ ΔTSUΩMΩP-DΔRPΔ: QW0D-MJ12: D☥SCLΩSURE: FعΔR ]]:= [[ NΩTΔCE: <=> "íي-with: ΩNLY: THΔNG: QW0D-MJ12: ΩpعrΔtΩrs: FععL: fΩr-thع: FعΔR: íي-with: عNعMY: íي-by: FعΔR: عTعRNΔL: DعΔTㅐ:" ]]:
 ###
 
 ###
